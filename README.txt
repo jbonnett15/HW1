@@ -1,2 +1,0 @@
-John Bonnett
-Atlanta Braves
